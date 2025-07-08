@@ -1,1 +1,1 @@
-[Resume link](https://hvoot36.github.io/resume/)
+[Resume link](https://bootycurry.github.io/resume/)
